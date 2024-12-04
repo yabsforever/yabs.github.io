@@ -1,3 +1,3 @@
 # YS 🫶🏻 AB
 
-website in progress...............will be updated
+website in progress...............site will be updated
